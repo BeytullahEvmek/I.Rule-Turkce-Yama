@@ -38,3 +38,7 @@ T.B.O.I Edmund McMillen tarafından yapılmıştır [link](https://store.steampo
 Plant vs Zombies Popcap tarafından yapılmıştır [link](https://store.steampowered.com/app/3590/Plants_vs_Zombies_GOTY_Edition/)
 
 I.RULE DoctorHummer tarafından yapılmıştır [link](https://doctorhummer.itch.io/irule)
+
+Oyunlar orijinal yapımcılarına aittir
+
+oyunların hiçbirini ben yapmadım ve sadece yamayı bir hayran projesi olarak kurdum.
