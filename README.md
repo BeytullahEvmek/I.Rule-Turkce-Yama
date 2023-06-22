@@ -1,1 +1,0 @@
-# I.Rule-T-rkce-Yama
